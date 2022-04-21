@@ -10,7 +10,7 @@ Hello there! My name is Pxzlz, I suck at managing my stuff!.
 ## Links
 
 [Discord](https://discord.com/users/857545770017751060) \
-[YouTube](https://www.youtube.com/Pxzlz) \
+[YouTube](https://www.youtube.com/Pxzlz)
 
 ***
 
